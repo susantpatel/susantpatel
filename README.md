@@ -1,0 +1,1 @@
+After I completed my graduation in the year 2017, I started my career as a digital marketing executive and worked for one year. After that, I left my job and started following my dream to be a full-stack web developer and today I am a self-taught full-stack web developer.
